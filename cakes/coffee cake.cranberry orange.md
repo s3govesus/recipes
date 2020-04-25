@@ -39,6 +39,7 @@
 1. Pour a thin layer of batter, using half of the batter, into a greased 9x13" pan  
 2. Add cranberries evenly on top of the thin layer of batter in the pan  
 3. Pour the remaining layer of batter evenly over the cranberries and bottom layer of batter  
+4. Add a layer of streusel topping to the top of the batter  
   
 ### Bake  
 1. Bake at 350f in a 9x13" pan, 50 to 55 min for a dark pan / 65 to 70min for a light pan  
