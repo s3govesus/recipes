@@ -27,7 +27,8 @@
 ### Cake Mixture  
 1. Finely grate one or two large oranges or about four clementines to generate about 1 tbsp of orange zest  
 2. Add the dry ingredients to a large mixing bowl and mix well (add the orange zest, but do not add the cranberries)  
-3. Add the yogurt / sour cream, melted butter, vanilla extract, and eggs to the mixture and mix well  
+3. Put the 1/2 cup of butter in a separate bowl and heat in a microwave on high for about 45 to 50 seconds until the butter is softened / somewhat melted  
+4. Add the yogurt / sour cream, softened / melted butter, vanilla extract, and eggs to the mixture and mix well  
   
 ### Streusel Topping  
 1. Add the dry ingredients to a large bowl  
