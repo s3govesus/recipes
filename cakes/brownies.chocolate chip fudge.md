@@ -1,3 +1,5 @@
+# Chocolate Chip Fudge Brownies
+
 ## Ingredients  
 * 1 cup + 4 tablespoons salted butter melted  
 * 2 cups granulated sugar  
